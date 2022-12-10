@@ -1,1 +1,0 @@
-# entalhealthatters.github.io
